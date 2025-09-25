@@ -35,7 +35,7 @@ Bilgisayar mühendisiyim. Siber güvenlik alanına ilgi duyuyorum ve bu alanda h
 
 - **Blender 3D Modelleme ve Oyun Geliştirme (Hobi)**  
   Blender, Unity, Unreal Engine  
-
+  [** 3D Modellerim :) **](https://www.artstation.com/copbey7)
 ---
 
 ## Hedefler & Motivasyon
